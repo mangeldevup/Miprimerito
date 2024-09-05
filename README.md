@@ -1,1 +1,3 @@
 # Miprimerito
+Mano.
+La vida es dura, pero tocar seguir adelante. Toca seguir aprendiendo...
